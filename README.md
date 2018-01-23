@@ -1,1 +1,1 @@
-Sitio Web Ruddor Consultoria Tecnológica
+Web Ruddor Consultoria Tecnológica
